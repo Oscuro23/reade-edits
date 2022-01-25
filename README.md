@@ -1,3 +1,3 @@
 # reade-edits
         
-chino/chino
+chino asi me dice
